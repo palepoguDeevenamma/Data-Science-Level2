@@ -1,0 +1,1 @@
+Restaurant reservations are an arrangement guests make in advance to confirm a table for their party at a specified time. Making a reservation at a restaurant can be done by phone, through a restaurant's website, third-party reservation sites or apps, at the restaurant in person, or even with a text message.
